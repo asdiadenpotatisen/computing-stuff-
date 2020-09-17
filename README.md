@@ -15,3 +15,5 @@ _DID YOU KNOW?_
 1. [RICKROLL IS GAY](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 2. [I AM COW IS KWOOL](https://www.youtube.com/watch?v=JohcbfO0OjA)
 3. [LEMON TREES IS GD FOR UR HEATH](https://www.youtube.com/watch?v=sJQYoGyEtDs)
+
+rickroll 101
