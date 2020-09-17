@@ -6,9 +6,9 @@ __FUN FACT!__
 * me is always depress 😱
 * i crack jokes for no reason 😬
 * and i dont do homework 😶
-___QUOTE OF DA DAY!___
+___KOTE OF DA DAY!___
 
-"I wan to die already"
+"I wan to commit liven't already"
 
 _DID YOU KNOW?_
 
